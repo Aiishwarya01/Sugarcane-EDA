@@ -100,6 +100,13 @@ The notebook serves as a foundation for agricultural production research or regi
 
 ---
 
+## Contact
+
+ 📧 aishwaryasr097@gmail.com
+ 
+ 🔗 [LinkedIn](https://www.linkedin.com/in/aishwarya-sr/)
+ 
+ 🔗 [GitHub](https://github.com/Aiishwarya01)
 
 
 
